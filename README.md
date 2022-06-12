@@ -7,4 +7,6 @@
 <!---
 123456788888888888/123456788888888888 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
---->
+-я люблю когда волосатые мужики обзазываются маслом..
+-я ещё мятные пряники
+-это всё что вы должны знать обо мне, а ещё и хент:)
